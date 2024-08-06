@@ -1,4 +1,4 @@
-## Hi there 👋
+## Eai aqui é o Lucas! 🇧🇷
 
 <!--
 **luquinhas0709/luquinhas0709** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
